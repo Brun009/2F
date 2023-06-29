@@ -1,2 +1,2 @@
 # 2F
-Neste site você irá aprender sobre #OQUE É NARGUILÉ.
+Todas as curiosidades do 2F
